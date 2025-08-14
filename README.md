@@ -1,5 +1,5 @@
 ## 
-![StarLights](Star.gif)![StarLights](Star.gif)![StarLights](Star.gif)![StarLights](Star.gif)![StarLights](Star.gif)
+![StarLights](Star.gif)![StarLights](Star.gif)![StarLights](Star.gif)![StarLights](Star.gif)
 
 ǶƸȴȴⰙ! ƬǶƖⳜ 𐤠ƇƇⰙꓴƝƬ ƖⳜ ʝꓴⳜƬ 𐒄𐤠ƖƝȴƳ ƑⰙⱤ ƖƝƑⰙ! ˚⊱🪷⊰˚
 
