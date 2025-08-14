@@ -1,8 +1,5 @@
 ## Hi there 👋
-![StarLights](
-
-
-
+![StarLights](Star.gif)![StarLights](Star.gif)![StarLights](Star.gif)![StarLights](Star.gif)![StarLights](Star.gif)
 
 
 
