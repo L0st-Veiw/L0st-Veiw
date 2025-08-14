@@ -1,12 +1,8 @@
 ## Hi there 👋
-![StarFall](StarFall.gif)![StarFall](StarFall.gif)![StarFall](StarFall.gif)
-
-
-
-
+![StarLights](StarLights.webp)!
 
  
 
 
-
-
+![StarLights](StarLights.webp)!
+![StarFall](StarFall.gif)![StarFall](StarFall.gif)![StarFall](StarFall.gif)
