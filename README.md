@@ -58,6 +58,10 @@ Artist: Requests Closed
 𝕀 𝕕𝕠𝕟'𝕥 𝕞𝕚𝕟𝕕 𝕤𝕙𝕚𝕡𝕤 𝕓𝕦𝕥 𝕕𝕠𝕟'𝕥 𝕠𝕗𝕥𝕖𝕟 𝕤𝕙𝕚𝕡 𝕔𝕙𝕒𝕣𝕒𝕔𝕥𝕖𝕣𝕤, 𝕨𝕙𝕖𝕟 𝕀 𝕕𝕠 𝕀 𝕖𝕒𝕥𝕙𝕖𝕣 𝕣𝕖𝕒𝕝𝕪 𝕝𝕚𝕜𝕖 𝕥𝕙𝕖 𝕤𝕙𝕚𝕡 𝕠𝕣 𝕥𝕙𝕖 𝕤𝕙𝕚𝕡 𝕚𝕤 𝕔𝕒𝕟𝕠𝕟. 
 
 ---------------───── ⋆⋅ ˗ˏˋ ★ ˎˊ˗ ⋅⋆ ─────----------------
+
+-Also Note when I say Touch Comfort to me it means I like cuddling with friends/being near them. I find it comforting to have someone I can trust around/ right next to me.
+
+-Please do not mistake when I say touch comfort with the kind meaning I DONT like bing touched becuse that is not the case.
  
 ![StarLights](PartyNoob.gif) 
 
