@@ -3,10 +3,10 @@
 
 *ǶƸȴȴⰙ! ƬǶƖⳜ 𐤠ƇƇⰙꓴƝƬ ƖⳜ ʝꓴⳜƬ 𐒄𐤠ƖƝȴƳ ƑⰙⱤ ƖƝƑⰙ! ˚⊱🪷⊰*
 
-Straw.Page and Prounouns.Page can be found in links! 
-Straw.Page is more detailed!
+Straw.Page and Prounouns.Page can be found in links!                                    |
 
-![StarLights](Untitled15_20260126010836.png)
+Straw.Page is more detailed! ._._. Go down for more info! v
+![StarLights](Untitled15_20260126010836.png)                                                   
  ---------------───── ⋆⋅ ˗ˏˋ ★ ˎˊ˗ ⋅⋆ ─────----------------
  
  *🅖🅔🅝🅔🅡🅐🅛 🅘🅝🅕🅞!*  
