@@ -6,6 +6,7 @@
 Straw.Page and Prounouns.Page can be found in links! 
 Straw.Page is more detailed!
 
+![StarLights](Untitled15_20260126010306.png)
  ---------------───── ⋆⋅ ˗ˏˋ ★ ˎˊ˗ ⋅⋆ ─────----------------
  
  *🅖🅔🅝🅔🅡🅐🅛 🅘🅝🅕🅞!*  
