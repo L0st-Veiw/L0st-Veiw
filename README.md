@@ -3,6 +3,8 @@
 
 *ǶƸȴȴⰙ! ƬǶƖⳜ 𐤠ƇƇⰙꓴƝƬ ƖⳜ ʝꓴⳜƬ 𐒄𐤠ƖƝȴƳ ƑⰙⱤ ƖƝƑⰙ! ˚⊱🪷⊰*
 
+NOTE THIS THE LOWER PART OF THIS IS OLD AND I WILL BE REDOING THIS SOON!
+
 Straw.Page and Prounouns.Page can be found in links!                                    |
 
 Straw.Page is more detailed! ._._. Go down for more info! v
