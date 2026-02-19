@@ -52,7 +52,6 @@ Artist: Requests Closed
 
 𝕀𝕗 𝕪𝕠𝕦 𝕨𝕒𝕟𝕥 𝕥𝕠 𝕥𝕒𝕜𝕖 𝕒 𝕡𝕚𝕔𝕥𝕦𝕣𝕖 𝕨𝕚𝕥𝕙 𝕞𝕖 𝔸𝕊𝕂 𝕗𝕚𝕣𝕤𝕥 𝕡𝕝𝕖𝕒𝕤𝕖.
 
-![StarLights](TwoTime2.gif)
 
 *🅕🅐🅝🅓🅞🅜 🅢🅣🅤🅕🅕*
 
