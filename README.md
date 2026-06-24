@@ -5,16 +5,12 @@ Hiya!
 
 *ǶƸȴȴⰙ! ƬǶƖⳜ 𐤠ƇƇⰙꓴƝƬ ƖⳜ ʝꓴⳜƬ 𐒄𐤠ƖƝȴƳ ƑⰙⱤ ꝒⰙƝƳƬⰙⱲƝ ƖƝƑⰙ!*
 
-More Info On my Straw Page!
-
 Feel free to sign my AtaBook!                                                                                                                                                                                                         
 Straw.Page is more detailed! ._._. Go down for more info! **⇣**
                                                   
  ---------------───── ⋆⋅ ˗ˏˋ ★ ˎˊ˗ ⋅⋆ ─────----------------
  
  *🅖🅔🅝🅔🅡🅐🅛 🅘🅝🅕🅞!*  
-
-- Most used skin? - Any of my TailGate skins
 
 - Skin- Copy= X. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.Inspo= ^ (to a exstent). ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.Repost= X. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.Color picking= X
 
