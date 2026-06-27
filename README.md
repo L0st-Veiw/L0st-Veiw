@@ -25,7 +25,9 @@ Straw.Page is more detailed! ._._. Go down for more info! **⇣**
 
 -# ➼ Pronouns: she/her/They/Them
 
--# ➼ TailGate C'link/skins I am ok with: She/Her/They/Them/He/Him 
+-# ➼ TailGate C'link/skins I am ok with: She/Her/They/Them/He/Him
+
+Bewere! rehehe I love doodling Transformer cats in peoples Strawpages! If im in the mood you might get got!
 
 -ˋˏ ༻ ♫ ༺ ˎˊ-
 
