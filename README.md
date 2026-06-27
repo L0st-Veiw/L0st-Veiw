@@ -5,7 +5,10 @@ Hiya!
 
 *ǶƸȴȴⰙ! ƬǶƖⳜ 𐤠ƇƇⰙꓴƝƬ ƖⳜ ʝꓴⳜƬ 𐒄𐤠ƖƝȴƳ ƑⰙⱤ ꝒⰙƝƳƬⰙⱲƝ ƖƝƑⰙ!*
 
-Feel free to sign my AtaBook!                                                                                                                                                                                                         
+Feel free to sign my AtaBook!  
+
+Please, PLEASE note I am a miner! Id like people to avoid all sexsual comments if it is derectly pointed at me!
+
 Straw.Page is more detailed! ._._. Go down for more info! **⇣**
                                                   
  ---------------───── ⋆⋅ ˗ˏˋ ★ ˎˊ˗ ⋅⋆ ─────----------------
