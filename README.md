@@ -17,7 +17,7 @@ Straw.Page is more detailed! ._._. Go down for more info! **⇣**
 
 - Skin- Copy= X. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.Inspo= ^ (to a exstent). ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.Repost= X. ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.Color picking= X
 
-- Age- 14+ - 18 (I wont say my exsact age unless close)
+- Age- 15+ - 17 (I wont say my exsact age unless close)
 
 - C+H is Encuriged! I have touch comfort because I feel safer having other people around me! (It is even more encuriged when I'm alone as I don't really like being alone sometimes.)
 
