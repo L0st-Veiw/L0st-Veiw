@@ -33,6 +33,9 @@ Bewere! rehehe I love doodling Transformer cats in peoples Strawpages! If im in 
 
 *ⒶⓇⓄⒶⒸⒺ*
 
+Little Exstra Info! Im looking to get into a Trine with people im close enough with!
+The Trine would be a simple 3 people group that bonds, sits, and messes around with eachother!
+
 **Byf/I -**
 
 I have Diagnosed ADHD. If I get too energetic just tell me and I can try and tone it down.
